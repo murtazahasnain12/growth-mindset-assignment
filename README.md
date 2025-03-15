@@ -1,1 +1,0 @@
-# growth-mindset-assignment
